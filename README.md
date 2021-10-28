@@ -11,7 +11,6 @@ I believe, you can still take care of people in many industries. For example, in
 
 
 
-
 THE TENSION
 
 21% of women which are in a tech are already courageous. My question is why would they do creative computing?  a new industry which is already saturated with men. 

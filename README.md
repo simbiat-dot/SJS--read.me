@@ -26,10 +26,6 @@ The patriarchy has women on a chokehold.
 To go against the odd means, you would have to be courageous. Women are evolving and crossing disciples. Creating and inventing. Stretching how we viewed in society. I’m proud!
    
 
-
-
-
-
 ### HOPE 
 
 During my research black girls code is amazing organization that resonated with me. I able to see both of my identities are an encourage factor instead of a disadvantage. A place that I wouldn’t be perceived as angry black girl. 
